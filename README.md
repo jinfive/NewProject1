@@ -75,4 +75,7 @@ Communication
 
 
 ## etc
-<a href="https://drive.google.com/file/d/166SGvni65tOsIooB8u-ZIrnwMhnn5Uy-/view?usp=drive_link" target="_blank">https://drive.google.com/file/d/166SGvni65tOsIooB8u-ZIrnwMhnn5Uy-/view?usp=drive_link</a>
+<a href="https://drive.google.com/file/d/166SGvni65tOsIooB8u-ZIrnwMhnn5Uy-/view?usp=drive_link" target="_blank">final report >> https://drive.google.com/file/d/166SGvni65tOsIooB8u-ZIrnwMhnn5Uy-/view?usp=drive_link</a>
+
+<a href="https://www.youtube.com/watch?v=jF26-mtclxE" target="_blank">Demonstration video >> https://www.youtube.com/watch?v=jF26-mtclxE</a>
+
